@@ -1,2 +1,2 @@
 # Wallpaper_Bank
-🖼️ All 16:9 Wallpapers are here !!!
+🖼️ All Desktop PCs Wallpapers are here !!!
